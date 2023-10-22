@@ -1,6 +1,6 @@
-baseURL = 'https://rheamammen.com/'
+baseURL = 'https://rheamammen.in/'
 languageCode = 'en-us'
-title = 'Rhea Roy Mammen'
+title = "Rhea's Blog"
 
 DefaultContentLanguage = "en"
 theme = "lightbi-hugo"
