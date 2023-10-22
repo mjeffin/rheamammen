@@ -1,5 +1,5 @@
 theme = 'lightbi-hugo'
-baseURL = "https://lightbi-hugo-theme.netlify.app/"
+baseURL = "https://rheamammen.in/"
 DefaultContentLanguage = "en"
 languageCode = "en-us"
 title = "Lightbi"
