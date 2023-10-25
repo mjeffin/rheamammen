@@ -1,6 +1,6 @@
 ---
 title: Season is Changing
-date: 2023-10-22
+date: 2024-10-22
 tags: ["musings"]
 image : "/img/mylife.jpeg"
 Description  :  "Facing your greatest fear is the best gift you can give yourself"
