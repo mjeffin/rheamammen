@@ -1,6 +1,6 @@
 ---
 title: I can code
-date: 2023-10-22
+date: 2025-12-22
 tags: ["musings"]
 image : "/img/mylife.jpeg"
 Description  :  "Facing your greatest fear is the best gift you can give yourself"
