@@ -3,7 +3,7 @@ title: An Expat Mom!
 date: 2023-10-22
 tags: ["musings"]
 image : "/img/mykids.jpeg"
-Description  :  "jkh"
+Description  :  "Over the moutains, across the sea, finding peace with parenthood"
 ---
 Disclaimer: Only for non-judgemental reader ! 
 
