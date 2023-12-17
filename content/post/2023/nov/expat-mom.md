@@ -1,11 +1,12 @@
 ---
 title: An Expat Mom!
-date: 2023-10-22
+date: 2023-11-05
 tags: ["musings"]
 image : "/img/mykids.jpeg"
 Description  :  "Over the moutains, across the sea, finding peace with parenthood"
 ---
-Disclaimer: Only for non-judgemental reader ! 
+Disclaimer: Only for non-judgemental reader !
+
 
 Migrating with two kids got me "off guard". Perhaps it was a moment that we can call "Ignorance is bliss", like when I took a flight alone with my 4-month-old and 5-year-old to join my husband in The Netherlands. At that time, it was all about getting the family together and perhaps enjoying a short holiday before heading back home.
 Well,Lord had planned it otherwise.  Choosing to stay in The Netherlands turned out to be the most challenging decision I had made in a long time. I was super happy with my career , a wonderful nanny, and a strong support system back in Bangalore. But then, there comes an unexpected adventure.  Almost two years have passed since, and I can now say what many experienced mothers would say: "I can't remember" or "it was enriching."
