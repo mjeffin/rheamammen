@@ -19,7 +19,7 @@ I wouldn’t deny that we are different from “traditional couples”. It took 
 5. **Agree to disagree** : being poles apart, there are humangous things we disagree on . But we have some ground rules of non interference and ensures we match on fundamental principles that doesn’t effect family as a unit.
 6. **Ready to work**: marriage is a lot of work. It takes investment of energy? Effort to know the other person, to let go, choosing the same person everyday . Its is work.
 7. **Keeping external forces out**: we have “no entry “policy into our closed circle no matter how close family or friends they are. They only take the role of audience and no active role unless it’s guest appearance. That helps because no one else interprets our conversations . We have began to prioritise each other .
-8. **Prayer** : For us, this is SUPREME. Agreements or disagreements , this is what holds us together.
+8. **Prayer** :This is a game changer!1. Agreements or disagreements , this is what holds us together.
    Personally a lot of my bestest happened after marriage , professionally and personally. So there is still hope in the institution of marriage ( for those who are ready to invest and work in it )
 
 
