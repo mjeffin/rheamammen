@@ -30,7 +30,7 @@ g. Happy Kids: The Clique - The education system emphasizes the holistic develop
 
 However, every decision involves trade-offs. Starting from scratch, defining oneself, and figuring out a new system of living without a support network is challenging. But for some, certain places are more suitable than others, thus prompting migration.
 
-So, it's ultimately about what we want and it's never about one place being better than the other, but it about what suits one over the other!
+So, it's ultimately about what we want and it's never about one place being better than the other, but it about what suits one over the other!!!
 
 
 
