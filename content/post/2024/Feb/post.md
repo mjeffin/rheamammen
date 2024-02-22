@@ -6,10 +6,10 @@ image : "/img/migrants.jpeg"
 Description  : "Some moves are forced, some are out of choice. Some for look for better opportunity, some are for better quality of life. Some are about exposure , some are about learnings. But ultimately, its personal and each carries its struggles"
 ---
 As far my family is concerned, it was completely supernatural! This was not on our life plan list. It was as sudden as migrating in 2 months, with many unsettled elements.
-One question that constantly bothered me was , “Why would someone leave their homeland” . It is not that glossy across the borders. To move leaving behind family, community, social life, established life. This is especially  crazy when moving with kids to a foreign country and forsaking all that is familiar is certainly not as glamorous as it might seem.The loneliness, lack of a support system and exhaustion are realities that hit you hard. Despite these struggles, many  have chosen to stay.
+One question that constantly bothered me was , “Why would someone leave their homeland”. It is not that glossy across the borders. To move leaving behind family, community, social life, established life. This is especially  crazy when moving with kids to a foreign country and forsaking all that is familiar is certainly not as glamorous as it might seem.The loneliness, lack of a support system and exhaustion are realities that hit you hard. Despite these struggles, many  have chosen to stay.
 
 
-Interestingly, there's still significant movement within Europe despite the high tax rates and standard of living, suggesting that finances are not the primary motivator.
+Interestingly, there's still significant movement to Europe despite the high tax rates and standard of living, suggesting that finances are not the primary motivator.
 Everything did look absurd !
 
 It's not because any one community or society is better or worse; it ultimately depends on one's personality and life decisions. But some factors worth taking into account
