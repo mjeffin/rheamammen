@@ -24,8 +24,7 @@ e. Impactful Living: Interestingly, financial considerations are less dominant w
 
 f. Governmental Support: The extensive social security benefits, such as unemployment benefits, child benefits, and pensions, are compelling reasons to move.
 
-g. Happy Kids: The Clique - The education system emphasizes the holistic development of children, fostering their happiness. Seeing my children excited to go to school is an added bonus. They are respected as individuals  and there is space dedicated for kids everywhere, helping parents move around with them. 
-
+g. Happy Kids: The Clique - The education system emphasizes the holistic development of children, fostering their happiness. Seeing my children excited to go to school is an added bonus. They are respected as individuals and the  dedicated space  eases the stress on parents. (atleast parenting is recognisd to be hard)
 However, every decision involves trade-offs. Starting from scratch, defining oneself and figuring out a new system of living without a support network is challenging. But for some, certain places are more suitable than others. 
 
 
