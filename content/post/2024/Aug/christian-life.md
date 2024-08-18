@@ -3,7 +3,7 @@ title: Its all about Choices
 date: 2024-08-18
 tags: ["musings"]
 image : "/img/choices.jpeg"
-Description  : "Being able to chose is true freedom. It can be internal or external strongholds, \"but take sometime to decide would you still do it if...\" and that includes in our believes as well! "
+Description  : "Being able to chose is true freedom. It can be internal or external strongholds, \but , ask yourself  if the you would have made the same choice even if... \" including our belief! "
 ---
 
 Religion, spirituality, belief, and ideologies are very personal. The moment they interfere with choice and become imposing, either for oneself or others, they defeat the purpose and become a pain .
