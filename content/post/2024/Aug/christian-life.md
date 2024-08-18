@@ -1,5 +1,5 @@
 ---
-title: If choices arent free - we arent free
+title: Lord never intervened with "Free will" akka choices!
 date: 2024-08-18
 tags: ["musings"]
 image : "/img/choices.jpeg"
@@ -9,12 +9,11 @@ Description  : "Being able to chose is true freedom. It can be internal or exter
 Religion, spirituality, belief, and ideologies are very personal. The moment they interfere with choice and become imposing, either for oneself or others, they defeat the purpose and become a pain .
 Now, I find my identity in being a Christian, but that’s my choice! and it’s not because I was born into a Christian family. My husband has a different perspective altogether , he used to identify himself as an agnostic ( before kids😜)
 
-Thankfully, my parents had a perfect blend of freedom and prayer.
+Thankfully, my parents had a perfect blend of freedom and prayer. (Which also meant, we were given the freedom of  choice [that comes with the strings of responsibility]!)
 
 I am a Christian because of my personal experience with Lord and holyspirit at the age of 17. And being chosen under his grace. It can sound absurd to many, well, that not unexpected..  Interestingly even the Lord gives priority to choices and free will!
 
-Thoug
-My initial thought about being a born-again Christian was that it would be smooth sailing from the inside! I was (and still am) fortunate to be part of an excellent and fantastic church.
+ThoughMy initial thought about being a born-again Christian was that it would be smooth sailing from the inside! I was (and still am) fortunate to be part of an excellent and fantastic church.
 
 I was fortunate to meet a few people who were strong spiritually, but I also encountered some who merely “showed” spirituality.
 
@@ -55,4 +54,6 @@ So what’s the takeaway?
 	5.	Waiting is not waiting in anticipation but hoping for the possibility of success.
 	6.	Knowing that no matter what, you are loved beyond measure!
 
-Finally focus on Jesus ! Faith , peace, grace , love and every goodness will follow 
+Finally focus on Jesus ! Faith , peace, grace , love and every goodness will follow.
+
+Ultimately, its all about what you chose to believe 
