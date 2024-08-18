@@ -1,5 +1,5 @@
 ---
-title: Lord never intervened with "Free will" akka choices!
+title: The day i choice to be a christian ! 
 date: 2024-08-18
 tags: ["musings"]
 image : "/img/choices.jpeg"
@@ -56,4 +56,4 @@ So what’s the takeaway?
 
 Finally focus on Jesus ! Faith , peace, grace , love and every goodness will follow.
 
-Ultimately, its all about what you chose to believe 
+Ultimately, Every day is about choices! 
