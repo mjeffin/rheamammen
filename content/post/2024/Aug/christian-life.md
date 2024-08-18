@@ -1,5 +1,5 @@
 ---
-title: The day i choice to be a christian
+title: The Day I Chose to be a Christian
 date: 2024-08-18
 tags: ["musings"]
 image : "/img/choices.jpeg"
