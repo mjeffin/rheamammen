@@ -1,5 +1,5 @@
 ---
-title: The Day I Chose to be a Christian
+title: Its all about Choices
 date: 2024-08-18
 tags: ["musings"]
 image : "/img/choices.jpeg"
