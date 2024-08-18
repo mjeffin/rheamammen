@@ -1,6 +1,7 @@
 ---
 title: The day i choice to be a christian
 date: 2024-08-18
+tags: ["musings"]
 image : "/img/choices.jpeg"
 Description  : "Being able to chose is true freedom. It can be internal or external strongholds, \"but take sometime to decide would you still do it if...\" and that includes in our believes as well! "
 ---
