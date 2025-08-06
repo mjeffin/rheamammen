@@ -1,14 +1,14 @@
 ---
-title: Christianity is not a religion but a relationship with Christ
-date: 2025-08-05
+title: For those manipulating Christianity - this is for you!
 tags: ["musings"]
-Description  : For those manipulating Christianity - this is for you!
+image : "/img/cross.png"
+Description  :  , if the LORD didnt create  sects, If bible did not mention sects, if Jesus did not speak of sects, who created it? Why are people naive to question it and insecure to listen to the word on the salvation or hear about "born again"?
 ---
 
 **For those manipulating Christianity - this is for you!**
 
 
-*Disclaimer: all opinions in this blog are mine alone! This is not for debate or discussion and is completely personal sharing. So if you have a problem, please write your own blog and don’t comment on mine 😇*
+*Disclaimer: all opinions in this blog are mine alone! This is not for debate or discussion and is completely personal sharing. So if you have a problem, please write your own blog and don’t comment on mine (DM if you are open for peaceful discussion alone! ITS A NO to debates) 😇*
 
 
 **Christianity is not a religion but a relationship with Christ** ! For that basic fact
