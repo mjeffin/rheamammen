@@ -1,5 +1,6 @@
 ---
 title: For those manipulating Christianity - this is for you!
+date: 2025-08-06
 tags: ["musings"]
 image : "/img/cross.png"
 Description  : If the LORD didnt create  sects, If bible did not mention sects, if Jesus did not speak of sects, who created it? Why are people naive to question it and insecure to listen to the word on the salvation or hear about "born again"?
